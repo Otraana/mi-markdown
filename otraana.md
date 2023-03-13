@@ -7,7 +7,7 @@ Me gusta la comida veggie, camellarle a los temas sociales (Feminismo, comunidad
 Generalmente durante el día hago:
 - Ejercicio
 - Jugar *Call of Duty*
-- Estudiar ingles
+- Estudiar ingles (pero hace dias no lo hago)
 - Bootcamp
 - Social media
 - Jugar con mi perra *Arya*
