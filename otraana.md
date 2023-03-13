@@ -17,3 +17,4 @@ Generalmente durante el día hago:
 ```
 console.log("Que chimba el suroeste");
 ```
+Justamente por esto meses le estamos trabajando a la elaboración de agendas locales para las elecciones venideras jijiji
